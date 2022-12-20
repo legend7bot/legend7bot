@@ -1,5 +1,5 @@
 ### Hi there 👋
-
+<a href="https://www.linkedin.com/in/harsh-vardhan-sharma7/">Linkedin Profile</a>
 
 <p align="center">
 <img src= "https://media1.giphy.com/media/NytMLKyiaIh6VH9SPm/giphy.gif?cid=ecf05e47lj6bctczkzigkfrcpir0bs0oulcjbdplk4u81d8c&rid=giphy.gif&ct=ghttps://media1.giphy.com/media/NytMLKyiaIh6VH9SPm/giphy.gif?cid=ecf05e47lj6bctczkzigkfrcpir0bs0oulcjbdplk4u81d8c&rid=giphy.gif&ct=g">
